@@ -25,7 +25,7 @@ $ python2 friends.py
 
 $ BENYAMIN-CREATOR
 
-$ Canal de YouTube: Beyamin2000
+$ Canal de YouTube: Benyamin2000
 
 $ Gracias por su apoyo cracks XD 
 
